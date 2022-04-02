@@ -1,9 +1,19 @@
-- 👋 Hi, I’m @SENJAX4
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-SENJAX4/SENJAX4 is a ✨hi, my name is SENJAX4 welcome session here, can I help you?? if it's ad try sung to my wa 085708529287
---->
+BISSMILAH ALL TRX ON!!
+SENJAX4 SESI
+_______________________________________________
+•JASAPOST FREE
+•OPEN SIS P
+•REKBER SUNG MC" KAN
+•MURSES SUNG PM
+-----------------------&------------------------------------------------------
+NO ADMIN CUMA DI BAWAH INI👇🏼
+WA JASAPOST :082142428276
+WA REKBER" :085708529287
+-----------------------&-----------------------------------------------------
+TETAP WASPADA DENGAN CLONE!!
+DAN TETAP LAH MENJADI AMANAH 💯 
+WALAUPUN DI PANGGIL RIPEER OLEH BUYER
+SEKIAN TERIMA KASIH
+-ALL TRX NO REFF-
+#SENJAX4 SESI
+_______________________________________________
